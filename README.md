@@ -1,2 +1,2 @@
-https://chatgpt.com/
+
 https://www.youtube.com/ https://www.google.com/
